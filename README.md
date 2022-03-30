@@ -1,0 +1,1 @@
+developas basiscs
