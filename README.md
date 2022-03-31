@@ -1,1 +1,1 @@
-developas basiscs
+Readme created
